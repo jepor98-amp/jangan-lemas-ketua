@@ -1,2 +1,3 @@
 # jangan-lemas-ketua
-Jangan 
+Jangan lemas kali katua semangan dikit
+LP amp jepor98 regalcreative.com
